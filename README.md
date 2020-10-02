@@ -1,1 +1,1 @@
-# Strawberry-Cupcake
+My dish is delicious strawberry cupcakes with creamy strawberry buttercream frosting. They have fresh strawberrys in them. Just looking at them will make your mouth water. They taste even better in your mouth. They are soft and sweet like cotton candy. And the frosting makes them even better. You will Love them.   
